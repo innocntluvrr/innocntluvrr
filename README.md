@@ -17,7 +17,7 @@
 <br>
   <br>
   DOCUMENT LISTING SIGHTED "WEIRDOS" IN THE MHA AREA . PLEASE BE WARY OF WHO YOU ARE FRIENDS WITH / WHO YOUR FRIENDS MAY ASSOCIATE WITH .
-https://docs.google.com/document/d/1-8aIMqxyLqO65isAXlLili-YdBkfcGTcf5ihipeCJ2U/edit?usp=sharing
+<br>https://docs.google.com/document/d/1-8aIMqxyLqO65isAXlLili-YdBkfcGTcf5ihipeCJ2U/edit?usp=sharing
 
 OWNER / CREATOR OF DOC ::
 
