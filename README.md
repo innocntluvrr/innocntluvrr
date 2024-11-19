@@ -1,4 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=innocntluvrr&color=grey)
+
+<p align="center">
+Depollute me, pretty baby
+<br>Suck the rot right out of my bloodstream
+<br>
+
+---
+  
 <br>
 <p align="center">
 <br><B>! ! !  IMPORTANT ! ! ! !</B>
