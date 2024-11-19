@@ -3,7 +3,13 @@
 <p align="center">
 Depollute me, pretty baby
 <br>Suck the rot right out of my bloodstream
+<br>Oh, dilute me, gentle angel
+<br>Water down what I call being grateful
 <br>
+<br>Oh, you kissed me just to kiss me
+<br>Not to take me home
+<br>It was simple, it was sweetness
+<br>It was good to know
 
 ---
   
