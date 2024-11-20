@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=innocntluvrr&color=grey)
 
+---
+
 <p align="center">
 Depollute me, pretty baby
 <br>Suck the rot right out of my bloodstream
@@ -12,6 +14,12 @@ Depollute me, pretty baby
 <br>It was good to know
 
 ---
+
+<p align="center">
+  DNI anyone in relation to my ex / exes OR ex-friends ( ru / ruben / idc js anyone friends w him or even if u know him only slightly please stay the fuck away from me k thank u! ) 
+  
+---
+
   
 <br>
 <p align="center">
