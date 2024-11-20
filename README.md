@@ -17,6 +17,7 @@ Depollute me, pretty baby
 <p align="center">
   DNI anyone in relation to my ex / exes OR ex-friends ( ru / ruben / idc js anyone friends w him or even if u know him only slightly please stay the fuck away from me ! i have no beef w u but i do NOT want to see or even remember that silly mans existence 😭🙏 )
   <br> DNI toxic individuals. AKA if you're js randomly mean to people for no reason or to people you don't know that well just "for the fun of it", stay back i say!
+  
 ---
 
 <p align="center">
