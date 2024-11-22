@@ -15,6 +15,7 @@ Depollute me, pretty baby
 
 ---
 <p align="center">
+  DNI anyone who knows / or is friends with any of my past exes / ex-friends . this includes anyone who knows sal, london, aspen, ru / ruben, etc . please dont int with me, in fact, hide me if you must ^-^
   <br> DNI toxic individuals. AKA if you're js randomly mean to people for no reason or to people you don't know that well just "for the fun of it", stay back i say!
   
 ---
