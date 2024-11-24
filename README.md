@@ -23,11 +23,7 @@
 
 <p align="center">
     <img src="https://files.catbox.moe/doxnju.gif">
-
-
 <img src="https://i.postimg.cc/prS104qQ/Untitled153-20241125031315.png">
-
-<p align="center">
     <img src="https://files.catbox.moe/doxnju.gif">
 
 
