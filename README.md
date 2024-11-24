@@ -21,7 +21,14 @@
 <br>
 <br>
 
+<p align="center">
+    <img src="https://files.catbox.moe/doxnju.gif">
+
+
 <img src="https://i.postimg.cc/prS104qQ/Untitled153-20241125031315.png">
+
+<p align="center">
+    <img src="https://files.catbox.moe/doxnju.gif">
 
 
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ BYF/I  ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
