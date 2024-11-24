@@ -18,7 +18,6 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i normally visit both 18+ and the safe server, but im more likely to be 
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀found on the 18+ server sitting in the mha area w friends !⠀⠀˳⠀ ◞
 <br>
-<br>
 
 <p align="center">
     <img src="https://files.catbox.moe/doxnju.gif">
@@ -43,5 +42,6 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ individuals under the age of 17⠀⠀˳⠀ ◞
 
 <p align="center">
+    <img src="https://files.catbox.moe/doxnju.gif">
     <img src="https://i.postimg.cc/9MJk9r9n/Untitled153-20241125032621.png">
 </p>
