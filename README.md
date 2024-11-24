@@ -15,9 +15,9 @@ Depollute me, pretty baby
 
 ---
 <p align="center">
-  DNI anyone who knows / or is friends with any of my past exes / ex-friends . this includes anyone who knows sal, london, aspen, ru / ruben, etc . please dont int with me, in fact, hide me if you must ^-^
+  DNI anyone who knows / or is friends with any of my past exes / ex-friends . if u dont know who i am i used to go by cass / elias / starboy and i used to frequent the safe server mha area 😭🙏
   <br> DNI toxic individuals. AKA if you're js randomly mean to people for no reason or to people you don't know that well just "for the fun of it", stay back i say!
-  
+  <br> DNI cunts who involve themselves in proshitting OR anyome who sexualises minors, fictional or not. this includes pedos and the like. 
 ---
 
 <p align="center">
