@@ -3,22 +3,23 @@
 ---
 
 <p align="center">
-Depollute me, pretty baby
-<br>Suck the rot right out of my bloodstream
-<br>Oh, dilute me, gentle angel
-<br>Water down what I call being grateful
-<br>
-<br>Oh, you kissed me just to kiss me
-<br>Not to take me home
-<br>It was simple, it was sweetness
-<br>It was good to know
+I'm tired of being home alone (home alone)
+<br>Used to have a girl a day (girl a day)
+<br>But I want you to stay (I want you to stay, hey)
+<br>You said you might be into girls (into girls)
+<br>You said you're going through a phase (through a phase)
+<br>Keepin' your heart safe (keepin' your heart safe, oh)
+<br>Well maybe you can bring a friend (bring a friend)
+<br>She gon' ride on top your face (top your face)
+<br>While I fuck you straight (while I fuck you straight, yeah)
+<br> lost in the fire - the weeknd
 
 ---
 
 <p align="center">
   DNI anyone who knows / or is friends with any of my past exes / ex-friends . if u dont know who i am i used to go by cass / elias / starboy and i used to frequent the safe server mha area and homestuck area😭🙏
   <br> DNI toxic individuals. AKA if you're js randomly mean to people for no reason or to people you don't know that well just "for the fun of it", stay back i say!
-  <br> DNI cunts who involve themselves in proshitting OR anyome who sexualises minors, fictional or not. this includes pedos and the like. 
+  <br> DNI cunts who involve themselves in proshitting OR anyone who sexualises minors, fictional or not. this includes pedos and the like. 
   
 ---
 
