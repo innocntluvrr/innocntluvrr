@@ -14,11 +14,12 @@ Depollute me, pretty baby
 <br>It was good to know
 
 ---
+
 <p align="center">
   DNI anyone who knows / or is friends with any of my past exes / ex-friends . if u dont know who i am i used to go by cass / elias / starboy and i used to frequent the safe server mha area and homestuck area😭🙏
   <br> DNI toxic individuals. AKA if you're js randomly mean to people for no reason or to people you don't know that well just "for the fun of it", stay back i say!
   <br> DNI cunts who involve themselves in proshitting OR anyome who sexualises minors, fictional or not. this includes pedos and the like. 
-  <br>
+  
 ---
 
 <p align="center">
