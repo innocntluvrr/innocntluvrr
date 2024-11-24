@@ -25,7 +25,7 @@
     <img src="https://files.catbox.moe/doxnju.gif">
 
 
-<br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ BYF/I  ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ BYF/I  ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i have severe jealousy issues that may affect any relationships i have with ppl⠀⠀˳⠀ ◞
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i am a system⠀⠀˳⠀ ◞
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i have a hard time figuring out social cues / tone unless tone tags are used in convo⠀⠀˳⠀ ◞
