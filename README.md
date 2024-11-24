@@ -2,8 +2,7 @@
 
 <p align="center">
     <img src="https://i.postimg.cc/wM96qyp4/Untitled153-20241125024359.png">
-
-<p align="center">
+    <img src="https://files.catbox.moe/doxnju.gif">
     
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ WHO R U ? ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i go by a lot of names . . . but im mostly known as either 
