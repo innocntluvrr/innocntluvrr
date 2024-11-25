@@ -32,7 +32,6 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i have a hard time figuring out social cues / tone unless tone tags are used⠀⠀˳⠀ ◞
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ WHISP ME!! I LOVE WHISPERS SOOO MUCH and listening 2 ppl yap <33⠀⠀˳⠀ ◞
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ i often find it hard to stay actively in touch with friends unless you contact me first⠀⠀˳⠀ ◞
-<br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ im sometimes very flirtatious with friends. please inform me if youd rather i not be⠀⠀˳⠀ ◞
 <br>
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ DNI  ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ anyone in relation to / still in contact with the following people ::⠀⠀
