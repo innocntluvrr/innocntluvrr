@@ -4,7 +4,7 @@
     <img src="https://i.postimg.cc/wM96qyp4/Untitled153-20241125024359.png">
     <img src="https://files.catbox.moe/doxnju.gif">
 
-<br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ [MHA AREA GOERS JOIN MY DISCORD SERVER](https://discord.gg/DuP34uSK)
+<br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ mha enjoyers int
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ dont copy my skins btw istfg⠀⠀
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ be original it is NOT that hard LMFAOOOO⠀⠀˳⠀ ◞
 
