@@ -1,8 +1,7 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=innocntluvrr&label=+ʚ𝜚+&color=grey)⠀⠀⠀.⠀⠀⠀'⠀⠀⠀<img src="https://files.catbox.moe/zfulfq.gif">
 
 <p align="center">
-    <img src="https://i.postimg.cc/wM96qyp4/Untitled153-20241125024359.png">
-    <img src="https://files.catbox.moe/doxnju.gif">
+    <img src="https://i.postimg.cc/3RVrWn5j/Untitled180-20241220011042.png">
 
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ mha enjoyers int
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ dont copy my skins btw istfg⠀⠀
@@ -26,9 +25,7 @@
 <br>
 
 <p align="center">
-    <img src="https://files.catbox.moe/doxnju.gif">
-<img src="https://i.postimg.cc/prS104qQ/Untitled153-20241125031315.png">
-    <img src="https://files.catbox.moe/doxnju.gif">
+<img src="https://i.postimg.cc/wMpPWmh8/Untitled180-20241220012407.png">
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2xdsg0.gif"> .⠀⠀⠀⠀◜ 𓈒⠀⠀ BYF/I  ⠀⠀⠀◝ ⠀⠀⠀<img src="https://files.catbox.moe/lz73qh.gif">
@@ -63,6 +60,5 @@
 <br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀read it. its based af ˳⠀ ◞
 <br>
 <p align="center">
-    <img src="https://files.catbox.moe/doxnju.gif">
-    <img src="https://i.postimg.cc/9MJk9r9n/Untitled153-20241125032621.png">
+    <img src="https://i.postimg.cc/zv7d0PzK/Untitled180-20241220012334.png">
 </p>
