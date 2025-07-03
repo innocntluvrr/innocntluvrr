@@ -13,7 +13,7 @@
   <br>
   <br> *disclaimer*　!!<br>
   if you 　knew　　our 　old 　host　　dont 　bring them 　up,　thanks　^_^<br>
-  if you　didnt, 　then congrats　^_^　i wish　we never　knew them　either　😓
+  <br>
 <p align="center">
 
 ![](https://i.postimg.cc/nLBbgqgh/Untitled249-20250704081123.png)
