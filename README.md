@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　 　　　　　 　　　　　　![](https://komarev.com/ghpvc/?username=innocntluvr)
+　　　　　　　　　　　　　 　　　　　 　　　　　　　　![](https://komarev.com/ghpvc/?username=innocntluvr)
 <p align="center">
 ⊹ ﹒ you're face, to face ﹒︵ <br>
 ➷﹒ with the man who sold the world ﹒⟡
