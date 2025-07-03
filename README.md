@@ -6,8 +6,8 @@
 
 
   
-　　　　　　　　　　　　　 　　　 ![image](https://github.com/user-attachments/assets/527cd963-2adb-4930-b8e9-04885418cdcc)   　　   𓏴　　　she*he*　　　/　　　**sys**　　!<br>
-　　　　　　　　　　　　　 　　　　　 　　　　　　　hp,　sp,　housemd,　mha　　✿      　　 　　   ![image](https://github.com/user-attachments/assets/210941e1-b03b-4c2d-af6c-664a172c2cac)
+　　　　　　　　　　　　　  ![image](https://github.com/user-attachments/assets/527cd963-2adb-4930-b8e9-04885418cdcc)   　　   𓏴　　　she*he*　　　/　　　**sys**　　!<br>
+　　　　　　　　　　　　　 　　　　　hp,　sp,　housemd,　mha　　✿      　　 　　   ![image](https://github.com/user-attachments/assets/210941e1-b03b-4c2d-af6c-664a172c2cac)
 
 <p align="center">                
   <br> *disclaimer*　!!<br>
