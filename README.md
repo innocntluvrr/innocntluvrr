@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　 　　　　　 　　　　　　　![ ♡ ](https://komarev.com/ghpvc/?username=innocntluvr&color=BF7089&label=♡)
+　　　　　　　　　　　　　 　　　　　 　　　　　　　![ ♡ ](https://komarev.com/ghpvc/?username=innocntluvr&color=3e115e&label=♡)
 
 
    　　   𓏴　　　she*he*　　　/　　　**sys**　　/　　　19 <br>
