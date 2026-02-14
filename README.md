@@ -1,3 +1,3 @@
-　　　　　　　　　　　　　 　　　　　 　　　　　　　![ ♡ ](https://komarev.com/ghpvc/?username=innocntluvr&color=FFA500&label=♡)
+　　　　　　　　　　　　　 　　　　　 　　　　　　　![ ♡ ](https://komarev.com/ghpvc/?username=innocntluvr&color=000000&label=🎭)
 
 revamp
